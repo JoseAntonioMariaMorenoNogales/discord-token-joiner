@@ -8,6 +8,6 @@
 
 50 🌟and release
 
-for buy cheap in [DISCORD](https://discord.gg/socialbosting)
+for buy cheap in [DISCORD](https://discord.gg/pgjDWV8m75)
 
-https://discord.gg/socialbosting
+https://discord.gg/pgjDWV8m75
